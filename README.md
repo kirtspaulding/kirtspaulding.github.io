@@ -1,1 +1,0 @@
-# kirtspaulding.github.io
